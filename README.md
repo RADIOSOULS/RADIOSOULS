@@ -2,3 +2,10 @@
 
 ![](https://lifted.crd.co/assets/images/gallery01/bb85f3ee.png?v=540c5116)![](https://lifted.crd.co/assets/images/gallery01/bb85f3ee.png?v=540c5116)![](https://lifted.crd.co/assets/images/gallery01/bb85f3ee.png?v=540c5116)
 ### ![](http://img.photobucket.com/albums/v252/shaquanda/dumpitydump/pixelwixel/arwx4.gif) ![swirly1](https://epic.crd.co/assets/images/gallery12/1ec993ff.gif?v=b52a0828) Salutations, welcome to my profile!! click on my rentry for information.  ![hoe](https://64.media.tumblr.com/tumblr_ltv0lazbFP1r2nnw5.gif) ![meo](http://img.photobucket.com/albums/v252/shaquanda/dumpitydump/pixelwixel/tsr.gif)
+
+
+
+
+
+
+(i dont even like hazbin hotel all that much i just love alastor )
